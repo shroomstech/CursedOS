@@ -11,7 +11,7 @@ it got created cause a 13 year old Teen (aka Me shroom) thought it would be cool
 
 People i Recommend:
 
-Alex (codeztech, but due to some... ehem "Problems" is he meh but his distro is arch based and alot more Easy than my Distro)
+Alex (codeztech, but due to some... ehem "Problems" is he meh but his distro is arch based and alot more Easy than my Distro)<br>
 Bitetheapple (thatpicoder, like alex we had some Problems)
 
 People i Wouldn't Recommend:
